@@ -1,6 +1,6 @@
 # Remington Acres Privacy Policy
 
-**Last updated:** April 3, 2026
+**Last updated:** May 4, 2026
 
 Remington Acres ("we," "us," or "our") publishes mobile applications and related services.
 
